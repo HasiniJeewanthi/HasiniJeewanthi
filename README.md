@@ -18,7 +18,7 @@
 
  📧 How to reach me **vghasini234@gmail.com**
  
- ⚡ Fun fact **I think I am Funny**
+ ⚡ Always love to **learn new things**
  
  </div>
  
